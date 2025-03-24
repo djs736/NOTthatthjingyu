@@ -1,3 +1,2 @@
 # NOTthatthjingyu
-ok
-ok ok ik you stink like alot
+ignore the other listen to folder
